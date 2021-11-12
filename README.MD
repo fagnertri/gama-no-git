@@ -1,1 +1,1 @@
-O curso é show !!
+O curso é show e eu gostei muito !!
